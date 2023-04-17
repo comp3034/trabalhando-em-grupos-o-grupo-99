@@ -1,3 +1,5 @@
+
+quem escrever dps dessa mensagem é bobão
 A história começou
 Quando um relógio esquisito
 Grudou no pulso dele vindo lá do infinito
@@ -20,7 +22,5 @@ Seja onde for
 É o Ben 10
 
 
-HIDJGSIUIJHGASIGHSpfpoDPFDOHFOgsfAFsdjgnksjnkdjlaFKJGSJKAdfjklhbkj
 
-quem escrever dps dessa 
-mensagem é bobão
+
