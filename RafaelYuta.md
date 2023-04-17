@@ -1,5 +1,5 @@
 
-quem escrever dps dessa mensagem é bobão
+
 A história começou
 Quando um relógio esquisito
 Grudou no pulso dele vindo lá do infinito
@@ -21,6 +21,6 @@ Moleque muito irado
 Seja onde for
 É o Ben 10
 
+dsasdafGDSGASDGDGASGGAS
 
-
-
+quem escrever dps dessa mensagem é bobão
