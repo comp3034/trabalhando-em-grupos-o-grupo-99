@@ -1,1 +1,1 @@
-Eu amo viver, a vida é bela.
+Eu amo viver, a vida é bala.
